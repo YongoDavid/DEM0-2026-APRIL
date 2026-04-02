@@ -5,3 +5,4 @@ THIS IS THE START OF ANOTHER QUATER, LETS MAKE IT BETTER THAN LAST QUATER.
 New month, new quater, focus on progress, frequency and being present.
 
 02 APRIL
+New day, same grind.
