@@ -8,3 +8,4 @@ New month, new quater, focus on progress, frequency and being present.
 New day, same grind.
 
 03 APRIL 
+New week, new day.
