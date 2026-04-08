@@ -9,3 +9,6 @@ New day, same grind.
 
 03 APRIL 
 New week, new day.
+
+08 APRIL
+New day, same grind.
