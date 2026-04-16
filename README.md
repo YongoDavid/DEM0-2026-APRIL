@@ -28,3 +28,5 @@ New day,same grind.
 
 15 APRIL
 New day, saem grind.
+
+16 APRIL
