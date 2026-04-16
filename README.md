@@ -15,7 +15,7 @@ New day, same grind.
 
 09 APRIL
 New day, sa,e grind.
-Looking into CodeRabbit, PostHug and everything from events.
+Looking into Code, Rabbit, PostHug and everything from events.
 
 10 APRIL
 New day, same grind.
