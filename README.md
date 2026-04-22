@@ -40,3 +40,6 @@ New week, new day, same grind.
 
 21 APRIL
 New day, more grind.
+
+22 APRIL
+New day, same grind on TKV Backend.
