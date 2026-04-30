@@ -61,3 +61,4 @@ New day, same grind.
 
 30 APRIL
 New day, same grind.
+Last day of the month, its been a goof month so far, see you next month.
